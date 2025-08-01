@@ -18,4 +18,4 @@
 
 ЛУЧШИЙ ПАКЕТНЫЙ МЕНЕДЖЕР ВООБЩЕ
 
-!(https://ibb.co/Q7HRfrXg)
+[![photo-2025-08-01-12-10-07.jpg](https://i.postimg.cc/dQxQ2QBH/photo-2025-08-01-12-10-07.jpg)](https://postimg.cc/c6fNZSPw)
