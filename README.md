@@ -18,4 +18,4 @@
 
 ЛУЧШИЙ ПАКЕТНЫЙ МЕНЕДЖЕР ВООБЩЕ
 
-![пингвин 320кг](https://ibb.co/Q7HRfrXg)
+!(https://ibb.co/Q7HRfrXg)
